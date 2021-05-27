@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LukasBliukis
-- 👀 I’m interested in E-world, Eco-green system, Eletricity science, Tech, Businesses these days, E - Commerce and so on..
+- 👀 I’m interested in E-world, Eco-green system, Eletricity science, Tech, these days Businesses, E - Commerce and so on..
 - 🌱 I’m currently mastering the art of self innovation
 - 💞️ I’m looking to collaborate on finding the right people with trust to gather the team for starting business, creating an idea for kickstarter,
 finding the leader which i can follow, share ideas and implement the ideas.
